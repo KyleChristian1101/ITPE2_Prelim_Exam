@@ -1,5 +1,1 @@
-This is your prelim laboratory exam.
-
-Use everything you learned (if there is) in solving this repository.
-
-Goodluck!
+Hi! my name is Kyle Christian C. Arandilla, I love  Cars and motorcycles and also. I love playing AAA games
